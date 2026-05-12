@@ -1,4 +1,4 @@
-# 
+# updated Aseprite for PC | Aseprite for Windows Template | photo-restoration + export-presets offers the most advanced Aseprite for PC | Aseprite for Windows template, with
 
 
 
